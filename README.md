@@ -39,7 +39,7 @@ profesinal y personal.
 Me fascina trabajar en equipo, me considero un buen compañero que intenta solucionar problemas para un correcto direccionamiento
 a un objetivo en comun.
 
-Actualemento continuo aprendiendo sobre temas relacionados a la programacion y me encuentro estudiando Biotecnologia 🧪🧫
+Actualmente continuo aprendiendo sobre temas relacionados a la programacion y me encuentro estudiando Biotecnologia 🧪🧫
 
 Contactame !! 👨🏻‍💻
 
